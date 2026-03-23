@@ -1,0 +1,1 @@
+# quran-License-1.0
